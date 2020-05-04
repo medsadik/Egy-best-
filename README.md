@@ -1,5 +1,5 @@
 # Egy-best-
 Auto playing films 
 
-#Zahya am3alm git is good asf 
-xD 
+# post your project in github is a good habit 
+mzn lkoukab 
